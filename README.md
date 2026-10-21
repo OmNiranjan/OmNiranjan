@@ -1,4 +1,4 @@
-## Hi👋 I'am Om Niranjan
+No Ex, No Next.......f*ck love, Lets Grow 🥷🏻
 
 <!--
 **OmNiranjan/OmNiranjan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
